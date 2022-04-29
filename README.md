@@ -1,1 +1,1 @@
-# AICTE-New-Website
+# Aicte/rugved7/.github.io
